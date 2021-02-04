@@ -1,0 +1,1 @@
+Aujourd'hui ça sera résolution de conflit
